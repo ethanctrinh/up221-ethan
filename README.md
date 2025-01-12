@@ -1,6 +1,7 @@
 ### **URBN PL 221: Ethan Trinh**
 _**About Me**_  
-Hello! My name is Ethan Trinh, a first year student pursuing both a Master of Urban and Regional Planning (MURP) and a Master of Public Health (MPH) - Environmental Health Sciences. Coming from an undergraduate degree in Ecology, Behavior, and Evolution and Asian American Studies, my main interests in urban planning stretch across a variety of topics and include: climate resiliency, greening/shading projects, urban ecological restoration, green gentrification, ethnic enclaves, and decolonial urban spaces.  
+Hello! My name is Ethan Trinh, a first year student pursuing both a Master of Urban and Regional Planning (MURP) and a Master of Public Health (MPH) - Environmental Health Sciences. Coming from an undergraduate degree in Ecology, Behavior, and Evolution and Asian American Studies, my main interests in urban planning stretch across a variety of topics and include: climate resiliency, greening/shading projects, settler colonial landscapes and built environment, urban ecological restoration, green gentrification, ethnic enclaves, invasive species, and decolonial urban spaces.  
+
 Outside of the classroom, I currently work part-time as an environment consultant on a contract with Southern California Edison organizing biological surveys and monitors for vegetation management around electrical poles. In addition to that, I am often in Los Angeles Chinatown on Sundays helping out with a weekly mutual aid event run by the Chinatown Community for Equitable Development (CCED).
 
 _**Project Ideas**_  
